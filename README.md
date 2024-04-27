@@ -32,7 +32,7 @@ Get Involved:
 
  # Let's Connect:
 
- Linkeidn : www.linkedin.com/in/abu-torab-arnob-482a15202
+ Linkedin : www.linkedin.com/in/abu-torab-arnob-482a15202
 
 📧 Email: [maxarnobtorab@gmail.com]
 
